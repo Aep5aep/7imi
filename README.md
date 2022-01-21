@@ -1,0 +1,2 @@
+# 7imi
+pertanian
